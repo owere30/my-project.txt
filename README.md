@@ -1,0 +1,2 @@
+JOURNEYABOUT MY FREELANCE WEBSITE DEVELOPMENT.
+Hello!I am Owere Charity Ignaitus, and
